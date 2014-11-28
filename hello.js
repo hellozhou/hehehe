@@ -1,6 +1,3 @@
 hellosfdsfdsfdsf
 worlddsfdsfds
 woshi fsdf
-zhoudsffdsfsdf
-jiaodsfdssfdsfsd
-longsdfdsfdsfsdfdsfsdf
